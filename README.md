@@ -10,3 +10,8 @@ https://portal.fgv.br/artigos/o-debate-sobre-os-efeitos-economicos-da-inteligenc
 https://www.correio24horas.com.br/economia/inteligencia-artificial-vai-substituir-seu-emprego-veja-as-profissoes-em-risco-e-as-que-ganham-mais-no-brasil-em-2026-0326
 https://ibre.fgv.br/sites/ibre.fgv.br/files/arquivos/u65/inteligencia_artificial_e_mercado_de_trabalho_-_04-02-2025_-_final.pdf
 https://portalibre.fgv.br/sites/default/files/2026-01/01ce2026-carta-do-ibre.pdf
+
+https://notebooklm.google.com/notebook/3bd4a694-d510-4634-b41d-9f91132c4839
+
+
+
